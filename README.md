@@ -1,5 +1,10 @@
-## Hi there 👋
+## Hi there 👋 I'm Tiffany! (a.k.a. **tiffvantix**)
 
+### 📬 Let's Connect
+
+💌 Feel free to reach out via [LinkedIn](linkedin.com/in/tiffany-l-b41852254) 
+
+---
 <!--
 **Tiffvantix/Tiffvantix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
